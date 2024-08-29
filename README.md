@@ -3,7 +3,7 @@
 
 > not complete!
 
-This is a (possibly) brief collection (or guide) of all the tools, programs, apps, websites, resource, etc. that i use. **this is NOT an exhaustive list.** i am **not** the most experienced pirate, there are infinitely more comprehensive guides out there, which i will be mentioning. i am standing on the shoulders of giants, namely: r/piracy.
+This is a (possibly) brief collection (or guide) of all the tools, programs, apps, websites, resources, etc. that i use. **this is NOT an exhaustive list.** i am **not** the most experienced pirate, there are infinitely more comprehensive guides out there, which i will be mentioning. i am standing on the shoulders of giants, namely: r/piracy.
 
 Note: this will be filled with rancor in all respects, i am still not f**king over how netflix cancelled "I Am Not Okay With This" which also incidentally describes my feelings of streaming services having complete control of what i can and cannot watch.
 
